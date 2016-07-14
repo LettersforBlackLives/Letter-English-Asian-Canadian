@@ -1,4 +1,4 @@
-### CANADIAN VERSION — Dear Mom, Dad, Uncle, Auntie: Black Lives Matter to Us, Too
+Dear Mom, Dad, Uncle, Auntie: Black Lives Matter to Us, Too
 
 Dear Mom, Dad, Uncle, Auntie, Grandfather, Grandmother:
 
